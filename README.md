@@ -1,8 +1,8 @@
+###
 <div align="center">
   <img height="500" src="https://i.pinimg.com/736x/b1/e7/4d/b1e74d1f1b05f9ad3f30f87f019a6fd5.jpg)"  />
 </div>
 
-###
 # 💫 About Me:
 ㅤ🧛. 𝘄𝗵𝗼? 𝗶𝘁'𝘀 𝗺𝗲, 𝗰𝗼𝗼𝗹 𝗮𝗻𝗱 𝗵𝗮𝗻𝗱𝘀𝗼𝗺𝗲 <br>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝗯𝗼𝘆 ✦ <br><br>𝖐𝖎𝖒 🅣🅐🅔🅗🅨🅤🅝🅖, better known 𝙗𝙮 his stage name V 💀<br> is a 🅂outh 𝑲orean singer-songwriter, 𝓇ℯ𝒸ℴ𝓇𝒹 producer<br> and actor under 𝕭𝖎𝖌 𝕳𝖎𝖙 Music 🥂 He is a vocalist,<br> 🅐 dancer and a visual of 𝗕𝗧𝗦, V was born 𝕶im 𝒯aehyung<br> on 𝔻𝕖𝕔𝕖𝕞𝕓𝕖𝕣 30, 1995 in 𝘿aegu, South Korea 💢 ⓐⓝⓓ<br> grew up in 𝐆eochang County. ℌ𝔢 𝔦𝔰 the oldest of three <br>𝚌𝚑𝚒𝚕𝚍𝚛𝚎𝚗, with a younger brother and 𝒮ister. 🆅 initially <br>became a 𝐭𝐫𝐚𝐢𝐧𝐧𝐞 for Big Hit Entertainment after 𝖕𝖆𝖘𝖘𝖎𝖓𝖌<br> an audition in 𝕯aegu ?¡! 💥<br>
 
